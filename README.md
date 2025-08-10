@@ -50,5 +50,5 @@ We had 2 different sessions for DAY 3. ONE ON HUMAN VALUES AND ANOTHER ON PHYSIC
 - other important activity mam made us do was to write how much time we spend on all three things that are PHYSICAL FACILITY, RELATIONSHIPS AND RIGHT UNDERTANDING.
 - The session was concluded by iteracting and solving and answering doubts and questions of students.
 
-# DAY 4
+# DAY 4O
 
