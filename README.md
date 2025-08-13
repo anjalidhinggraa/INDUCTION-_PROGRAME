@@ -75,4 +75,15 @@ We had 2 different sessions for DAY 3. ONE ON HUMAN VALUES AND ANOTHER ON PHYSIC
 - The next session was by students of **CAUSMIC CLUB** WHO EXPLAINED US VISION ,MISSION OF THE CLUB . How and when and by whom was it formed by. They explained us breifly what the club does and what are they looking in students for those who want to join the club. The president of clun along with their mates briefly explained about club , the teachers and inchaarges of club and all the events they have organised in past with help of a presentation.
 - THIS WAS DAY 4 OF INDUCTION PROGRAM.
 
-# DAY 5
+# DAY 5 & DAY 6
+
+- 5TH and 6TH day started with rgular classes/tutorials.which were peer to peer classess conducted by our seniors,English,Chem,Maths,Beee lecs.
+- Day 6th was followed up by **_EXPERT LECTURES_**:
+- The first lec was by _DR. LAKHVIR EINGH KHANA_ he is head of CML club which stands for CENTRE FOR MUTIFACADE LEARNING. They explained their mission and vision,what there club does and how this club helps lifting our social skills and how it can be hepfull for our growth going forward.
+- then they enlightened us about **SWAYAM PORTAL** and how it offers diffrent courses and about **NPTEL** courses as well, its additional course that can be done frm home and which will help devlope our skills.It was overall an very informative session .
+- img
+
+# DAY 7 & DAY 8
+
+-
+
